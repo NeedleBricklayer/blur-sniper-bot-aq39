@@ -1,4 +1,4 @@
-# 
+# best blur sniper bot | auto-buy + snipe-list-management offers the most advanced blur sniper bot, with auto-buy and snipe-list-management. Ideal for professional NFT traders and
 
 
 
